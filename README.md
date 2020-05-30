@@ -1,2 +1,3 @@
-# Inovar com as TIC
- Formação SPZN
+# Formação SPZN
+INOVAR COM AS TIC:
+    UTILIZAÇÃO DE “APPS” (APLICAÇÕES) PEDAGÓGICAS
